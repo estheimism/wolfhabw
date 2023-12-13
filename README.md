@@ -1,4 +1,3 @@
-# ![](https://i.imgur.com/fi1Bygp.gif) READ MY RENTRY BYI
 ![](https://i.imgur.com/gKN0Mzq.gif)![](https://i.imgur.com/Khg6Xsl.gif)![](https://i.imgur.com/xRbc5oF.gif)![](https://y2k.neocities.org/buttons/drpepper.gif)![](https://y2k.neocities.org/buttons/gameboy_advance_net.gif)![](https://i.imgur.com/ugksSvp.gif)
 ![](https://i.imgur.com/mYf5szV.png)
 
